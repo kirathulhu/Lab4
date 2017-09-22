@@ -1,1 +1,1 @@
-# Lab4 Kira Johnson, Partner: Kira Johnson
+# Lab4 Kira Johnson
